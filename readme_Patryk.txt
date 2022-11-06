@@ -1,1 +1,1 @@
-Chce wywołac konflikt Patryk
+Co ja robie Patryk
